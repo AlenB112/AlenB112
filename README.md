@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science
 - 🌱 I’m currently learning data science
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me alenbenny713@gamil.com
+- 📫 How to reach me alenbenny112@gamil.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
